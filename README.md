@@ -1,4 +1,4 @@
-👩‍⚕️ Pharmacist | Web Developer | AI Enthusiast
+👩‍⚕️ Pharmacist | Web Developer | AI Enthusiast | Educator
 
 🌟 Certified in Generative AI | Voice-to-Voice Chatbot Developer | Course Developer
 
